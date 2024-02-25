@@ -1,5 +1,5 @@
-                          Hi, I'm Rayaan Ismail!
-                    Here's a quick glimpse into my world:
+                    Hi, I'm Rayaan Ismail!
+             Here's a quick glimpse into my world:
 
 -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-  -0-0-
 
